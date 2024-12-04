@@ -26,5 +26,5 @@ KDB Trading B.V., founded in 2017 and based in Terneuzen, Netherlands, operates 
 
 [LinkedIn](https://Linkedin.com)
 
-[Tiktok}(https://tiktok.com/kdbtrading)
+[Tiktok](https://tiktok.com/kdbtrading)
 
