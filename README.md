@@ -14,11 +14,17 @@ KDB Trading B.V., founded in 2017 and based in Terneuzen, Netherlands, operates 
 📧 Email: [info@kdbtrading.nl](mailto:info@kdbtrading.nl)
 📞 Call us: +31 6 35250852
 
-[Youtube] (https://www.youtube.com/@kdbtrading)
+[Youtube](https://www.youtube.com/@kdbtrading)
 
 [Mastodon](https://mstdn.business/@kdbtrading)
 
 [Linktree](https://linktr.ee/kdbtrading)
 
 [Facebook](https://www.facebook.com/kdbtradingHQ)
+
+[Pinterest](https://nl.pinterest.com/kdbtrading/)
+
+[LinkedIn](https://Linkedin.com)
+
+[Tiktok}(https://tiktok.com/kdbtrading)
 
